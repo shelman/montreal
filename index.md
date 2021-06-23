@@ -20,7 +20,10 @@ We research, book, and pay for lodging, events, and food (everything other than 
 
 Our pick for lodging is the [Hotel Nelligan](https://hotelnelligan.com/) in Old Montreal.
 
-## Events and Activities
+## Potential Events and Activities
+
+[Museum of Fine Arts](https://www.mbam.qc.ca/en/)
+[Botanical Gardens](https://espacepourlavie.ca/en/botanical-garden)
 
 ## Food
 
