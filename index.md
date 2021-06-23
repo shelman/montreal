@@ -23,6 +23,7 @@ Our pick for lodging is the [Hotel Nelligan](https://hotelnelligan.com/) in Old 
 ## Potential Events and Activities
 
 [Museum of Fine Arts](https://www.mbam.qc.ca/en/)
+
 [Botanical Gardens](https://espacepourlavie.ca/en/botanical-garden)
 
 ## Food
