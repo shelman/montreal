@@ -22,13 +22,21 @@ Our pick for lodging is the [Hotel Nelligan](https://hotelnelligan.com/) in Old 
 
 ## Potential Events and Activities
 
+A small sampling of the things that we could do:
+
 [Museum of Fine Arts](https://www.mbam.qc.ca/en/)
 
 [Botanical Gardens](https://espacepourlavie.ca/en/botanical-garden)
 
+Food tours ([Jewish themed](https://wanderingchew.ca/) or [not](https://localfoodtours.com/montreal/))
+
+Exploring cool neighborhoods: Mile End, Plateau Mont-Royal, the Underground City, many more.
+
+A day trip to sugar shacks and orchards in the nearby Monteregie area.
+
 ## Food
 
-The most important part! Some options include but are by no means limited to:
+The most important part, of course! Some options include but are by no means limited to:
 
 ***Casual***
 - [Schwartz's Deli](https://en.wikipedia.org/wiki/Schwartz%27s), famous spot for smoked meat.
@@ -36,3 +44,4 @@ The most important part! Some options include but are by no means limited to:
 - [Jean-Talon](https://www.marchespublics-mtl.com/en/marches/jean-talon-market/) public market.
 
 ***Fancy***
+- 
