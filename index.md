@@ -46,3 +46,4 @@ The most important part, of course! Some options include but are by no means lim
 ***Fancy***
 - [Au Pied de Cochon](https://aupieddecochon.ca/qc/)
 - [Joe Beef](https://www.joebeef.com/), [Vin Papillon](https://vinpapillon.com/), or [Liverpool House](https://liverpoolhouse.ca/) (owned by the same people)
+- [Garde Manger](https://www.gardemanger.co/)
